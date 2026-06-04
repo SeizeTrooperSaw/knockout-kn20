@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base hidden Scripts is the best steal the brainrot base Script, featuring no clip and custom skins. Safe and powerful for all your
 
 
 
